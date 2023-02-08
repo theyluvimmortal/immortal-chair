@@ -1,5 +1,3 @@
-make sure you have apo and better discord downloaded
-
 immortal#6270 if u need help 
 
 ██╗███╗░░░███╗███╗░░░███╗░█████╗░██████╗░████████╗░█████╗░██╗░░░░░
