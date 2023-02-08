@@ -1,5 +1,3 @@
-spoofer just incase you get banned on a game and you want to get unbanned
-
 immortal#6270 if u need help 
 
 ██╗███╗░░░███╗███╗░░░███╗░█████╗░██████╗░████████╗░█████╗░██╗░░░░░
